@@ -1,0 +1,1 @@
+# template-hotspot-1
